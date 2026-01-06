@@ -1,5 +1,5 @@
 # projek_001
 projek pertama saya
-ALdian Reyza Putra Ariyanto
+Aldian Reyza Putra Ariyanto
 reyyzan
 XII MERDEKA 4
